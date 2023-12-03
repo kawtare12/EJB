@@ -16,6 +16,15 @@
 ![image](https://github.com/kawtare12/EJB/assets/120519708/16b2e808-862a-4c90-bd55-79587d2de770)
 ![image](https://github.com/kawtare12/EJB/assets/120519708/707d7d67-4baf-4da2-9293-f93fb44b811e)
 ![image](https://github.com/kawtare12/EJB/assets/120519708/0fc84039-8e34-4a20-869b-875fa2a05de2)
+# HOTEL PAR VILLE 
+![image](https://github.com/kawtare12/EJB/assets/120519708/8de98b47-f72a-4f12-bcf5-5131cf601692)
+![image](https://github.com/kawtare12/EJB/assets/120519708/6186131e-c75c-4f28-812d-d06bae5a99e5)
+![image](https://github.com/kawtare12/EJB/assets/120519708/77fa9962-7bfa-4b94-b383-8bd91ea7e6f4)
+![image](https://github.com/kawtare12/EJB/assets/120519708/865aa92c-a53a-4be5-a836-e62493baaacb)
+
+
+
+
 
 
 
